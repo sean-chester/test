@@ -1,4 +1,5 @@
 I am happy to be part of software skills seminar 
                            khizra 
-Update from Jax.
+Got here, Harper.
+Update from Jax
 update from khizra
