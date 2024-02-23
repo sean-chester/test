@@ -9,6 +9,8 @@ update from khizr
 some changes 123
 =======>>>>>> Stashed changes
 Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Orci nulla pellentesque dignissim enim sit. Mi sit amet mauris commodo. Elementum tempus egestas sed sed risus pretium. Magna fringilla urna porttitor rhoncus dolor purus. Vestibulum rhoncus est pellentesque elit ullamcorper dignissim cras. Amet nulla facilisi morbi tempus. Arcu non sodales neque sodales ut. Libero volutpat sed cras ornare arcu dui vivamus arcu felis. Mi proin sed libero enim sed faucibus turpis in eu.
+i
+making some changees
 sdfasdfasdf asdf dfasdf adf a
 Aliquet sagittis id consectetur purus ut faucibus pulvinar elementum. Enim eu turpis egestas pretium. Potenti nullam ac tortor vitae purus faucibus. Mi bibendum neque egestas congue quisque. Etiam erat velit scelerisque in dictum non. Aliquam faucibus purus in massa tempor nec feugiat nisl. Scelerisque eleifend donec pretium vulputate sapien nec sagittis. Tincidunt lobortis feugiat vivamus at augue eget. Diam sit amet nisl suscipit adipiscing bibendum est. Justo donec enim diam vulputate ut pharetra sit amet. Pretium nibh ipsum consequat nisl vel pretium lectus quam id. Habitant morbi tristique senectus et netus et malesuada fames.
 
